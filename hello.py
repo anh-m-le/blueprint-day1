@@ -1,2 +1,0 @@
-#krishajohn
-#sofiaBlueprintday1
